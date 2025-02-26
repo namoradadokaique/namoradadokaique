@@ -7,7 +7,6 @@ Tenho um grupo de amigos que se chama kauane,eduarda,lhian,jonata,mateus e o hen
 
 ajudo minha mãe em casa
 
-insta:@danyxzkj
-eu namoro com kaique
+insta:@dany.xss
 
 ![](https://media.tenor.com/3IyhdSfyePQAAAAC/lana-delrey.gif)https://media.tenor.com/3IyhdSfyePQAAAAC/lana-delrey.gif)
